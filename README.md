@@ -1,2 +1,2 @@
 # presentaciones
-Fotos en general
+Presentaciones académicas 
